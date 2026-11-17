@@ -1,1 +1,0 @@
-SQNAL CS:GO Site
